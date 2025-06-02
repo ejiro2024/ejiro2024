@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Ejirooghene Ogedengbe
 - 👀 I’m interested in helping businesses solve their problems through exploring insights from data
 - 🌱 I’m currently a Virtual assistant and learning Data analysis.
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me
+- 💞️ I’m looking to collaborate on business decisions and insights
+- 📫 Reach me at ejiroogheneonofuevure@gmail.com
 - 😄 Pronouns: 
 - ⚡ 
 
